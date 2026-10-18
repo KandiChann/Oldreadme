@@ -6,7 +6,7 @@
   <img src="https://64.media.tumblr.com/9965b02ef6e37e1dee0165e306ade2f2/2870f6b73e0540f3-9d/s2048x3072/9003500973e4f2a64f7c49963ae6ff9ce922535a.pnj" alt="Alt Text" width="700" />
 </p>
 
-<img src=https://64.media.tumblr.com/43041d6687a18410c45e0ddf44ce5732/fc1e4cb6276fe2b4-b7/s1280x1920/96d9ebd5bac5eb832b6fbcf8ffe6d01855a9f603.pnj width="500" align="left"> ![stalkers](https://komarev.com/ghpvc/?username=OrionChann&color=ffc32c&style=plastic&label=REGECT+ZEGECT+PEAKGECT)
+<img src=https://64.media.tumblr.com/43041d6687a18410c45e0ddf44ce5732/fc1e4cb6276fe2b4-b7/s1280x1920/96d9ebd5bac5eb832b6fbcf8ffe6d01855a9f603.pnj width="500" align="left"> ![stalkers](https://komarev.com/ghpvc/?username=KandiChann&color=ffc32c&style=plastic&label=REGECT+ZEGECT+PEAKGECT)
 
 
    ${\color{#fff8f4}\text{ CREDS }}$ ${\color{#dab872}\text{ TO }}$  ${\color{#3e393c}\text{ WHOEVER MADE }}$  ${\textsf{\color{#dab872} THESE GRAPHICS}}$
